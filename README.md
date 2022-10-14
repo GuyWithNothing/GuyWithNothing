@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GuyWithNothing
+- 👀 I’m interested in anarchy.
+- 🌱 I’m currently learning coding including html, c++' c#
+- 💞️ I’m looking to collaborate on moding some games/logging.
+- 📫 How to reach me, you can reach me on discord Laddie#9741
